@@ -1,4 +1,3 @@
-![Organization Logo](https://github.com/Purple-Magic/.github/blob/main/purple-magic-logo-small.png?raw=true)
 ## Embrace the Geeky Glamour of Purple Magic: IT Spells and Unicorn Smiles!
 
 ## Introduction
